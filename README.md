@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @IcarusPyro
+- 👀 I’m interested in not existing
+- 🌱 I’m currently learning how to live with my self
+- 📫 How to reach me pndhindsa17@gmail.com
